@@ -1,0 +1,1 @@
+# man05jp.com.np
